@@ -1,1 +1,0 @@
-# ModeloMatematicodeTemperatura_JuanManuelMiguelIsidro
